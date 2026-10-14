@@ -1,5 +1,6 @@
 # How QNAYDS Manjeri Students Get SOC Analyst Jobs in Malappuram: Best Cyber Security Institute in Kerala
-![Uploading WhatsApp Image 2026-10-14 at 11.42.53.jpg…]()
+
+<img width="2048" height="1152" alt="WhatsApp Image 2026-10-14 at 11 42 53" src="https://github.com/user-attachments/assets/4d27870e-8bfd-4524-a030-357cc80140ab" />
 
 ## Introduction
 
